@@ -72,5 +72,4 @@
 1. Ghế đá tặng trường 1,300k
 2. Đặt cọc quán ăn 2,000k
 3. Quà tặng Thầy (dây lưng) 522k
-
-=> Tổng chi: 
+ 

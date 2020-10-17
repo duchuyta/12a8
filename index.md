@@ -58,3 +58,18 @@
 | Dũng                  |                           |           |      |    |
 | Đăng                  |                           |           |           |    |
 
+
+###### Liên hệ
+
+1. In backdrop: 0967821694 (40k/m2)
+2. Thuê khung backdrop: 0942025265 (3x5m ~ 500-600k)
+3. Bác Quý (trường cũ): 0858059865
+4. Bác Trọng (trường mới): 0972589367
+
+###### Chi tiêu
+
+1. Ghế đá tặng trường 1,300k
+2. Đặt cọc quán ăn 2,000k
+3. Quà tặng Thầy (dây lưng) 522k
+
+=> Tổng chi: 

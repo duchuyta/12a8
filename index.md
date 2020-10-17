@@ -74,4 +74,5 @@
 3. Quà tặng Thầy (dây lưng) 522k
 4. Hashtag 560k
 5. Backdrop 800k
+6. Băng dính 2 mặt + ruy băng 16k
  

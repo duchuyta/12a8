@@ -75,4 +75,4 @@
 4. Hashtag 560k
 5. Backdrop 800k
 6. Băng dính 2 mặt + ruy băng 16k
- 
+7. Bác bảo vệ để đc ở lại trang trí muộn: 100k

@@ -76,3 +76,6 @@
 5. Backdrop 800k
 6. Băng dính 2 mặt + ruy băng 16k
 7. Bác bảo vệ để đc ở lại trang trí muộn: 100k
+8. 2 bác bv 400k
+9. Bóng bay 240k
+10. Khung 1100k + 500k cọc 

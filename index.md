@@ -70,7 +70,7 @@
 ###### Chi tiêu
 
 1. Ghế đá tặng trường 1,300k
-2. Đặt cọc quán ăn 2,000k
+2. Tiền ăn 7,448k
 3. Quà tặng Thầy (dây lưng) 522k
 4. Hashtag 560k
 5. Backdrop 800k
@@ -78,5 +78,6 @@
 7. Bác bảo vệ để đc ở lại trang trí muộn: 100k
 8. 2 bác bv 400k
 9. Bóng bay 240k
-10. Khung 1100k + 500k cọc 
-11. Hoa thầy 200k
+10. Khung 1100k
+11. Hoa tặng thầy 200k
+12. Tiền chụp + quay: 5,200k
